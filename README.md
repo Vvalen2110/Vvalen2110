@@ -3,7 +3,6 @@
 aqui são coisas sobre mim
 
 - Perfil de uma apaixonada em automobilismo🏎️
-- torço para a mercedes na formula 1⭐
 - adoro viajar✈️
 - gosto muito de musicas sertanejas🎵🎧
 - estudo marketing📸
