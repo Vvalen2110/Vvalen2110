@@ -2,11 +2,11 @@
 
 aqui são coisas sobre mim
 
-- apaixonada em automobilismo🏎️...
-- torço para a mercedes na formula 1⭐
-- adoro viajar✈️...
-- estudo marketing📸...
-- gosto de ler nas horas vagas📚...
+- ## apaixonada em automobilismo🏎️
+- ## torço para a mercedes na formula 1⭐
+- ## adoro viajar✈️
+- ## estudo marketing📸
+- ## gosto de ler nas horas vagas📚
 
 
   ![](https://media.tenor.com/A5xrsssyIeoAAAAC/carlos-sainz-wave.gif)
