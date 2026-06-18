@@ -8,7 +8,8 @@ aqui são coisas sobre mim
 - estudo marketing📸
 - gosto de ler nas horas vagas📚
   
-## this is a smooth operatorrr 🏎️🌶️
+## this is a smooth operatorrrr 🏎️🌶️
 
   ![](https://media.tenor.com/A5xrsssyIeoAAAAC/carlos-sainz-wave.gif)
 -->
+![](https://media.tenor.com/i5V5tiQXv2AAAAAd/formula-1-carlos-sainz.gif)
