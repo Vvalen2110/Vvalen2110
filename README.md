@@ -11,5 +11,6 @@ aqui são coisas sobre mim
 ## this is a smooth operatorrrr 🏎️🌶️
 
   ![](https://media.tenor.com/A5xrsssyIeoAAAAC/carlos-sainz-wave.gif)
--->
+
+
 ![](https://media.tenor.com/i5V5tiQXv2AAAAAd/formula-1-carlos-sainz.gif)
