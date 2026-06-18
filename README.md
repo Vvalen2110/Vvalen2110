@@ -5,7 +5,7 @@ aqui são coisas sobre mim
 - apaixonada em automobilismo🏎️
 - torço para a mercedes na formula 1⭐
 - adoro viajar✈️
-- #estudo marketing📸
+- estudo marketing📸
 - gosto de ler nas horas vagas📚
   
 ## this is a shooth operatorrr 🏎️🌶️
