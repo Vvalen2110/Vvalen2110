@@ -2,9 +2,10 @@
 
 aqui são coisas sobre mim
 
-- apaixonada em automobilismo e meu piloto favorito é o carlos sainz🏎️
+- Perfil de uma apaixonada em automobilismo🏎️
 - torço para a mercedes na formula 1⭐
 - adoro viajar✈️
+- gosto muito de musicas sertanejas🎵🎧
 - estudo marketing📸
 - gosto de ler nas horas vagas📚
   
