@@ -8,7 +8,7 @@ aqui são coisas sobre mim
 - estudo marketing📸
 - gosto de ler nas horas vagas📚
   
-## this is a shooth operatorrr 🏎️🌶️
+## this is a smooth operatorrr 🏎️🌶️
 
   ![](https://media.tenor.com/A5xrsssyIeoAAAAC/carlos-sainz-wave.gif)
 -->
